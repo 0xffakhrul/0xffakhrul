@@ -1,5 +1,5 @@
 #### You can find me on
-- [Linkedin](https://www.linkedin.com/in/fakhrul-radzi-ahmad/) - Yes
+- [Linkedin](https://www.linkedin.com/in/fakhrul-radzi-ahmad/) - I dont post anything there but just connect with me ig
 
 #
 
