@@ -3,5 +3,6 @@
 </p>
 
 <p align="center">
+  <p>your resume looks good. now please open any IDE</p> 
   <img src="https://media1.tenor.com/m/J9FOXusoz2AAAAAC/sean-o%27pry.gif" alt="Sean O' Pry" width="400" />
 </p>
